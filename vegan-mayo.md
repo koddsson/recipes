@@ -1,11 +1,11 @@
 ## Ingredients
 
-3 tbsp aquafaba (brine from a can of chickpeas)
-2 tsp Dijon mustard
-¾ tsp salt
-¼ tsp fine white pepper
-2 tbsp white wine vinegar
-250ml/9fl oz neutral oil, such as vegetable oil
+- 3 tbsp aquafaba (brine from a can of chickpeas)
+- 2 tsp Dijon mustard
+- ¾ tsp salt
+- ¼ tsp fine white pepper
+- 2 tbsp white wine vinegar
+- 250ml/9fl oz neutral oil, such as vegetable oil
 
 ## Directions
 
